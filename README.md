@@ -174,7 +174,7 @@ Admin can:
 **Keval Jamnapara**
 
 LinkedIn:
-[https://www.linkedin.com/in/keval-1344/](https://www.linkedin.com/in/keval-1344/)
+[https://linkedin.com/in/kevaljamnapara/](https://linkedin.com/in/kevaljamnapara/)
 
 GitHub:
 [https://github.com/Keval1306](https://github.com/Keval1306)
